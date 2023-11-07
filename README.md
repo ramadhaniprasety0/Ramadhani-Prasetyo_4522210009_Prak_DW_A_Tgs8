@@ -1,3 +1,3 @@
 # Ramadhani-Prasetyo_4522210009_Prak_DW_A_Tgs8
 
-![Picture]()
+![Picture](Pitcuretgs8.png)
